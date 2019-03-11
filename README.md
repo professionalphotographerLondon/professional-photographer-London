@@ -1,7 +1,7 @@
 # Professional Photographer London: Top Things That This Professional Can Do
-
+<CENTER>
 <img src="https://66.media.tumblr.com/23e44dc2ac2e22fe1ff624668ea5385e/tumblr_inline_po6o1fa0hB1wapilu_500.jpg" alt="Professional Photographer London" style="float:left;width:350px;height:300px;">
-
+</CENTER>
 
 Gone are the days when you'll just hire a <A HREF="https://www.thephototeam.co.uk/professional-photographer-london/">professional photographer London</A> based for special celebrations such as weddings, sports fest and more. Since apart from these gatherings, this expert can be useful in other vital occasions particularly corporate and themed ones. 
 
